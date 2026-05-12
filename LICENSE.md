@@ -1,4 +1,4 @@
-# 
+# Get the ultimate isolated-margin trading bot with exclusive isolated-margin trading bot Plugin | grid-trading + price-monitoring. Featuring grid-trading and price-monitoring, it's
 
 
 
